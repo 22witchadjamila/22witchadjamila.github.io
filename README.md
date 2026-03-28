@@ -172,7 +172,10 @@ Some of my biggest growth areas:
 
 ## 🎬 Short video Presentation
 
-1. Go to [youtube.com](https://youtube.com)
+
+https://github.com/user-attachments/assets/a983da57-5c66-4600-a636-36bcd8e475e9
+
+
 
 
 ---
